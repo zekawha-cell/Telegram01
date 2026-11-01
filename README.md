@@ -1,6 +1,6 @@
 # Telegram/纸飞机/电报成品号 协议登录
 
-# 官网 [https://anyshop.vip](https://anyshop.vip/?_referrer=githubliudaliuda)
+# 官网 [https://a38.top](https://a38.top/)
 
 ![image](https://github.com/user-attachments/assets/f34ad164-353c-44d7-87aa-335e3ed08aa1)
 
